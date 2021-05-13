@@ -1,1 +1,3 @@
 # clowzypublic
+
+ÇALANI SİKERİM BAK
